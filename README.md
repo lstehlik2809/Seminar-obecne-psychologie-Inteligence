@@ -1,0 +1,1 @@
+# Seminar_obecne_psychologie_Inteligence
